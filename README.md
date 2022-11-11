@@ -1,2 +1,3 @@
 # amy
-first try
+I am a noob and I admit it.
+
